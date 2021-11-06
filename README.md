@@ -1,1 +1,1 @@
-# Sukhrob-s-repo
+# Sukhrob' repository
